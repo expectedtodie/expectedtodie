@@ -16,7 +16,7 @@ I am just a regular guy in his 50's.  I am not a physician nor any kind of healt
 
 ### Links and Contact Information
 
-Feel free to email me at [dstaud@yahoo.com](mailto:dstaud@yahoo.com).
+Feel free to email me, Dave Staudenmaier, at [dstaud@yahoo.com](mailto:dstaud@yahoo.com).
 
 If you have a remote job and are interested in traveling with it, I may be able to help you with that.  
 
@@ -24,13 +24,8 @@ Here is my book available at Amazon: [Working on the Move: A guide for remote wo
 
 and the companion web site: [WorkingOnTheMove.com](https://workingonthemove.com)
 
-Dave Staudenmaier
-
 Our social media sites we started so our friends could follow us as we travese the USA are:
 
 [Facebook:Game Of Roamers](https://facebook.com/gameofroamers)
 
 [Instagram: Game of Roamers](https://instagram.com/gameofroamers)
-
-
-Dave Staudenmaier
