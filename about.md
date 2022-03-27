@@ -26,4 +26,5 @@ and the companion web site: [WorkingOnTheMove.com](https://workingonthemove.com)
 
 Our social media sites we started so our friends could follow us as we travese the USA are:
 [Facebook:Game Of Roamers](https://facebook.com/gameofroamers)
+
 [Instagram: Game of Roamers](https://instagram.com/gameofroamers)
