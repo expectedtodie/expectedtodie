@@ -22,7 +22,7 @@ If you have a remote job and are interested in traveling with it, I may be able 
 
 Here is my book available at Amazon: [Working on the Move: A guide for remote workers seeking adventure](https://www.amazon.com/dp/B09MGD3X8F/ref=cm_sw_em_r_mt_dp_TSSVQ5NJMK0QWB1GNCR4)
 
-and the companion web site: [WorkingOnTheMove.com]{https://workingonthemove.com)
+and the companion web site: [WorkingOnTheMove.com](https://workingonthemove.com)
 
 Our social media sites we started so our friends could follow us as we travese the USA are:
 [Facebook:Game Of Roamers](https://facebook.com/gameofroamers)
