@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-What do you do when you suddenly find out that you have a rare cancer that is stage IV, meaning it has spread from it's primary location to other parts of the body, and it is not curable?  On top of that you are told you have diseased gall bladder, a 'fatty liver' and a spleen whose blood supply is getting chocked off by the cancer causing "varicies" that put you at risk for internal bleeding.  And what if it was the same cancer that took Steve Jobs, a man with all the resources in the world to fight it? You find out on Google that you have a 24% chance of living past 5 years.  
+What do you do when you suddenly find out that you have a rare cancer that is stage IV, meaning it has spread from it's primary location to other parts of the body, and it is not curable?  On top of that you are told you have diseased gall bladder, a 'fatty liver', and a spleen whose blood supply is getting chocked off by the cancer, causing "varicies" that put you at risk for internal bleeding.  And what if it was the same cancer that took Steve Jobs, a man with all the resources in the world to fight it? You find out on Google that you have a 24% chance of living past 5 years.  
 
 Frankly, you are expected to die.
 
@@ -12,7 +12,7 @@ That was 2013, over 9 years ago.  And yet, I am still alive.  In fact, I am thri
 
 How was this possible?  Well, it's a very long story.  I will blog here about it in the hopes that I may offer you or your loved ones some hope. 
 
-I'm just a regular guy in his 50's.  I am not a physician nor any kind of healthcare worker.  Nothing I say should be taken as medical advice.   I will simply tell my story for my particular situation. 
+I am just a regular guy in his 50's.  I am not a physician nor any kind of healthcare worker.  Nothing I say should be taken as medical advice.   I will simply tell my story for my particular situation. 
 
 ### Links and Contact Information
 
