@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-What do you do when you suddenly find out that you have a rare cancer that is stage IV and it is not curable?  It gets worse.  On top of that you are told you also have a diseased gall bladder, a 'fatty liver', and a spleen whose blood supply is getting chocked off by the cancer, causing "varicies" that put you at risk for internal bleeding.  
+What do you do when you suddenly find out that you have a rare cancer that is stage IV and it is not curable?  It gets worse.  On top of that you are told you also have a diseased gall bladder, a 'fatty liver', and a spleen whose blood supply is getting chocked off by the cancer, causing "varices" that put you at risk for internal bleeding.  
 
 And what if you find out that it was the exact same cancer that took Steve Jobs, a man with all the resources in the world to fight it, and you are told the odds of you living past 5 years are only 24%?   
 
