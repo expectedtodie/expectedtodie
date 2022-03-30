@@ -48,7 +48,7 @@ Here is my book available at Amazon: [Working on the Move: A guide for remote wo
 
 and the companion web site: [WorkingOnTheMove.com](https://workingonthemove.com)
 
-Our social media sites we started so our friends could follow us as we travese the USA are:
+Our social media sites we started so our friends could follow us as we traverse the USA are:
 
 [Facebook:Game Of Roamers](https://facebook.com/gameofroamers)
 
