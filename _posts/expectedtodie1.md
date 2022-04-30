@@ -68,7 +68,7 @@ If that doesn’t scare you, I don’t know what will.
 
 ## Part 1 summary:
 
-** So far I’d learned two lessons from my mistakes: **
+**So far I’d learned two lessons from my mistakes:**
 
 1: Focus on finding out what cancer you have before thinking about cutting it out.
 2: Do not let them rush you.  Take your time and make good decisions.
