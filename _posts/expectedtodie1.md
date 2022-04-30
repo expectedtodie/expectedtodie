@@ -46,3 +46,31 @@ It was time to tell them and that was so hard.  I could not do it.  Michele had 
 After our crying session, Michele candidly took this picture of the kids and me.   Makes me want to cry just looking at it. 
 
 <img src="/images/blog/DaddysDying-small.jpg" height="300px">
+
+Another day, another scan.   The day after Christmas I went in for a Positron Emission Tomography (PET) scan.   Cancer is known to love sugar (glucose) and that helps the scan find where cancer may be hiding anywhere in the body.   The machine is similar to an MRI but with less noise.  Before you get in, you must drink a very sugary concoction and then wait 15 minutes for the sugar to get into your system.  The parts of your body that light up on the scan are the ones that absorb the most sugar, and thus are likely cancer spots.  This time I got to see the results real time.   The good news was, only my pancreas and liver lit up.  The bad news was, they REALLY lit up.   
+
+This was a terrible time in my life because we were pretty sure I had pancreatic cancer.  No one even offered up an alternative.  But nothing is official until a biopsy is done. 
+
+And this is when I made my first mistake.  I chose a surgeon and an oncologist without really knowing what cancer I had.  There had not yet been a biopsy.  On the other hand, I needed a doctor to order me a biopsy and what did I know about all this? 
+All I knew is that I wanted this cancer cut out.   Isn’t that what you do with cancer?  
+
+We knew people in the business and asked around to find the best surgeon in the area and was happy to get in to see him quickly.  The surgeon was associated with an oncologist, but the surgeon was leading the charge.  It turns out, surgeons really want to get you into surgery.  That’s their thing.  And they want to get you in as quickly as possible.   They tell you how critical it is to cut the cancer out before it spreads further.  They scare you.  
+
+That was my second mistake.   I let him rush me and I let him scare me.
+
+The surgeon told me that to get the cancer out, he had to do a “Whipple” procedure, which is the typical procedure for pancreatic cancer.  This is a very complex and dangerous major surgery where they would remove my pancreas, gallbladder, the first part of the small intestine called the duodenum, the bile duct and then do some re-routing of the plumbing.
+
+Once the pancreas is gone, I would be a fragile type 1 diabetic, completely reliant an insulin.  But not only that.   The pancreas produces hormones and chemicals critical to digestion.  Without it, you cannot even digest your food.  But there are drugs for that too.  The gallbladder produces bile which is used to help digest fats when you eat too many that the liver, which also produces bile.   
+
+So, some pretty important parts the doctor was talking about taking out.   Not to mention the gigantic incision they were planning, which would cut me from sternum to belly button.  
+
+If that doesn’t scare you, I don’t know what will.   
+
+##Part 1 summary:
+
+**So far I’d learned two lessons from my mistakes:**
+1: Focus on finding out what cancer you have before thinking about cutting it out.
+2: Do not let them rush you.  Take your time and make good decisions.
+
+Coming next in the series: “The news of your demise is greatly exaggerated”.
+
