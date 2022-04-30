@@ -45,4 +45,4 @@ It was time to tell them and that was so hard.  I could not do it.  Michele had 
 
 After our crying session, Michele candidly took this picture of the kids and me.   Makes me want to cry just looking at it. 
 
-<img src="/images/blog/devreboot/rv2.jpg" height="200px">
+<img src="/images/blog/DaddysDying-small.jpg" height="300px">
