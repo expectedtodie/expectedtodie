@@ -3,7 +3,9 @@ layout: post
 title: Expected to Die. One Man’s journey to life from stage IV, incurable cancer
 ---
 
-**Part 1: Daddy’s Dying.** “I am sorry to tell you that we believe what we are seeing is cancer” the doctor said.  “We can’t be sure of the type until we do a biopsy, but the scans indicate it has metastasized”.  There it was.  Cancer.  The ‘C’ word.   I wouldn’t find out until several weeks later the official diagnosis of Pancreatic Neuroendocrine Tumors (PNET), which had spread from my pancreas to my liver.   
+**Part 1: Daddy’s Dying.** 
+
+“I am sorry to tell you that we believe what we are seeing is cancer” the doctor said.  “We can’t be sure of the type until we do a biopsy, but the scans indicate it has metastasized”.  There it was.  Cancer.  The ‘C’ word.   I wouldn’t find out until several weeks later the official diagnosis of Pancreatic Neuroendocrine Tumors (PNET), which had spread from my pancreas to my liver.   
 
 Worse yet, a quick Google search told me that Steve Jobs died of this same cancer less than two years before, seven years after he was diagnosed.   If a man of similar age to me, with unlimited resources, like Apple co-founder Steve Jobs, was not able to beat it, how could I expect to?  Certainly, the doctors did not expect me to.   The odds of survival beyond  even 5 years were 24%.  They said it was not curable.
 
