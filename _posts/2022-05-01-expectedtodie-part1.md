@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Expected to Die.  One Man’s journey to life from stage IV, incurable cancer - Part 1
+title: Expected to Die: One Man’s journey to life from stage IV, incurable cancer - Part 1
 ---
 
 **Daddy’s Dying.** “I am sorry to tell you that we believe what we are seeing is cancer” the doctor said.  “We can’t be sure of the type until we do a biopsy, but the scans indicate it has metastasized”.  There it was.  Cancer.  The ‘C’ word.   I wouldn’t find out until several weeks later the official diagnosis of Pancreatic Neuroendocrine Tumors (PNET), which had spread from my pancreas to my liver.   
