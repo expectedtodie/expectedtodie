@@ -45,7 +45,7 @@ It was time to tell them and that was so hard.  I could not do it.  Michele had 
 
 After our crying session, Michele candidly took this picture of the kids and me.   Makes me want to cry just looking at it. 
 
-<img src="/images/blog/DaddysDying-small.jpg" height="300px">
+<img src="/images/blog/DaddysDying-small.jpg" width="900px">
 
 Another day, another scan.   The day after Christmas I went in for a Positron Emission Tomography (PET) scan.   Cancer is known to love sugar (glucose) and that helps the scan find where cancer may be hiding anywhere in the body.   The machine is similar to an MRI but with less noise.  Before you get in, you must drink a very sugary concoction and then wait 15 minutes for the sugar to get into your system.  The parts of your body that light up on the scan are the ones that absorb the most sugar, and thus are likely cancer spots.  This time I got to see the results real time.   The good news was, only my pancreas and liver lit up.  The bad news was, they REALLY lit up.   
 
