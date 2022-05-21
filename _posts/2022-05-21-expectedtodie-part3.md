@@ -25,7 +25,15 @@ But there was still that annoying hernia to deal with.   We decided to go back t
 
 When I left the hospital, I was told again after surgery not to lift anything more than 5 lbs.  Do you know how hard it is to stop yourself from lifting anything over 5 lbs.?  A gallon of milk weighs more than that.  One night my invalid father called me to help him urgently.  He had sat on the edge of the bed and was slipping off and couldn’t get back up.  He was very scared of falling.  So, what did I do?   I jumped on the bed and pulled him back up, without thinking.  I think that was when my second hernia started growing, despite the mesh.   Another softball on its way.  
 
-At that point, I gave up on fixing the hernia and wore a girdle-like device keep everything in and moved on with my life, hoping for ‘progression free survival’ and that I was one of the 24% to make it to the five-year mark in 2018.   At least by then, our youngest son would be a junior in high school.   But progression-free was not to be.
+At that point, I gave up on fixing the hernia and wore a girdle-like device to keep everything in and moved on with my life. 
+
+Having a rare cancer can be difficult because there are few oncologists who know how to treat the cancer.  There are also few people you can talk to who have gone through the rare cancer.  Thankfully, these few can be found online in a site I highly recommend for any health issue: [inspire.com](https://inspire.com).  Here you can search for your condition and join an online support group.  This is incredibly useful because you can learn from others who have gone through or are going through what you are going through.  Most important, is you can ask questions and learn.  For instance, I learned that there was a new kind of radiation treatment that wasn't even available in the United States for my kind of cancer.  People were flying to Europe to get these treatments.  That kind of stuff is good to know because your Oncologist will likely not mention it if treatment isn't available. 
+
+THe lesson learned here is that sometimes you can learn more from other patients with the same condition than you can from your doctor.  
+
+After my chemo treatment the cancer seemed stable and I was hoping for, as the doctor put it, ‘progression free survival’, and that I was one of the lucky 24% to make it to the five-year mark in 2018.   At least by then, our youngest son would be a junior in high school.   
+
+But progression-free was not to be.
 
 ## Part 3 summary:
 
@@ -38,6 +46,8 @@ At that point, I gave up on fixing the hernia and wore a girdle-like device keep
 3: Trust your instincts.  Don't be afraid to do something different than your doctor suggests.
 
 4: Take time to find a specialist, especially if you have a rare condition.
+
+5: Learn and get support from other patients going through what you are going through.
 
 Coming next in the series: “Get busy living or get busy dying”.
 
