@@ -5,6 +5,8 @@ title: Expected to Die. One Man’s journey to life from stage IV, incurable can
 
 **Part 2: The news of your demise has been exaggerated** 
 
+This is part 2 of my blog series.  If you haven't read part 1, check out [https://expectedtodie.com/expectedtodie-part1](Daddy's Dying).
+
 It wasn’t until January 2013 that we finally were able to get the biopsy done.   This required that I be put under anesthesia while a different doctor put a scope down my throat to inspect and cut out a small part of the lesions from both the pancreas and liver.  We talked with the doctor before the procedure and he explained that I would not feel a thing and, at worst, would have a sore throat for a day.  And he was right, it was no big deal.  
 
 Some days later, our surgeon called and asked us to come to his office.  We were sitting there in his office when he popped in the door and announced, “the news of your demise has been exaggerated!”.  He really said this.  This is when we learned I had a rare type of cancer called Pancreatic Neuroendocrine Tumors (PNET) and not Pancreatic Cancer or Adenocarcinoma .   While the five-year life expectancy for stage IV Adenocarcinoma is less than 1%, the five-year life expectancy for stage IV PNET is 24% because it is a slower growing cancer.  So, good news… sort of.   I was told it had likely been growing for a decade, but I had no symptoms which is typical of this type of cancer.  Who knew? 
