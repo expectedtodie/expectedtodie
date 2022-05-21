@@ -74,6 +74,6 @@ If that doesn’t scare you, I don’t know what will.
 
 2: Do not let them rush you.  Take your time and make good decisions.
 
-Coming next in the series: “The news of your demise is exaggerated”.
+Check out part 2 in the series: [The news of your demise is exaggerated](https://expectedtodie.com/expectedtodie-part2).
 
 **Disclaimer**: I am not a physician nor any kind of healthcare worker. Nothing I say should be taken as medical advice. I will simply tell my story for my particular situation and hope you will get something out of it.
