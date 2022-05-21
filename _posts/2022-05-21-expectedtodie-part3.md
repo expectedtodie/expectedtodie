@@ -35,9 +35,7 @@ After my chemo treatment the cancer seemed stable and I was hoping for, as the d
 
 But progression-free was not to be.
 
-## Part 3 summary:
-
-**Lessons Learned:**
+## Lessons Learned:
 
 1: Focus on finding out what cancer you have before thinking about cutting it out.
 
