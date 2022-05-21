@@ -29,13 +29,15 @@ At that point, I gave up on fixing the hernia and wore a girdle-like device to k
 
 Having a rare cancer can be difficult because there are few oncologists who know how to treat the cancer.  There are also few people you can talk to who have gone through the rare cancer.  Thankfully, these few can be found online in a site I highly recommend for any health issue: [inspire.com](https://inspire.com).  Here you can search for your condition and join an online support group.  This is incredibly useful because you can learn from others who have gone through or are going through what you are going through.  Most important, is you can ask questions and learn.  For instance, I learned that there was a new kind of radiation treatment that wasn't even available in the United States for my kind of cancer.  People were flying to Europe to get these treatments.  That kind of stuff is good to know because your Oncologist will likely not mention it if treatment isn't available. 
 
-THe lesson learned here is that sometimes you can learn more from other patients with the same condition than you can from your doctor.  
+The lesson learned here is that sometimes you can learn more from other patients with the same condition than you can from your doctor.  
 
 After my chemo treatment the cancer seemed stable and I was hoping for, as the doctor put it, ‘progression free survival’, and that I was one of the lucky 24% to make it to the five-year mark in 2018.   At least by then, our youngest son would be a junior in high school.   
 
 But progression-free was not to be.
 
 ## Lessons Learned:
+
+---
 
 1: Focus on finding out what cancer you have before thinking about cutting it out.
 
@@ -46,6 +48,9 @@ But progression-free was not to be.
 4: Take time to find a specialist, especially if you have a rare condition.
 
 5: Learn and get support from other patients going through what you are going through.
+
+---
+
 
 Coming next in the series: “Get busy living or get busy dying”.
 
