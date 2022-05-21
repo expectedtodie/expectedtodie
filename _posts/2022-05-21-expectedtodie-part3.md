@@ -3,7 +3,7 @@ layout: post
 title: Expected to Die. One Man’s journey to life from stage IV, incurable cancer
 ---
 
-**Part 3: The specialist** 
+**Part 3: Getting answers and support** 
 
 This is part 3 of my blog series.  It's best to start with part one, [Daddy's Dying](https://expectedtodie.com/expectedtodie-part1).
 
