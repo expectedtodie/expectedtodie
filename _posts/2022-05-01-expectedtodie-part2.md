@@ -5,7 +5,7 @@ title: Expected to Die. One Man’s journey to life from stage IV, incurable can
 
 **Part 2: The news of your demise has been exaggerated** 
 
-This is part 2 of my blog series.  If you haven't read part 1, check out [Daddy's Dying](https://expectedtodie.com/expectedtodie-part1).
+This is part 2 of my blog series.  If you haven't read part 1, check out [Daddy's dying](https://expectedtodie.com/expectedtodie-part1).
 
 It wasn’t until January 2013 that we finally were able to get the biopsy done.   This required that I be put under anesthesia while a different doctor put a scope down my throat to inspect and cut out a small part of the lesions from both the pancreas and liver.  We talked with the doctor before the procedure and he explained that I would not feel a thing and, at worst, would have a sore throat for a day.  And he was right, it was no big deal.  
 
