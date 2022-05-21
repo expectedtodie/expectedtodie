@@ -5,7 +5,7 @@ title: Expected to Die. One Man’s journey to life from stage IV, incurable can
 
 **Part 3: Getting answers and support** 
 
-This is part 3 of my blog series.  It's best to start with part one, [Daddy's dying](https://expectedtodie.com/expectedtodie-part1).
+This is part 3 of my blog series.  If you haven't read the previous parts in the series, it is best to start with part one, [Daddy's dying](https://expectedtodie.com/expectedtodie-part1).
 
 Since the surgery had failed, maybe it was time to find a specialist.  It turns out Tampa Florida has an awesome cancer center called Moffitt Cancer Center and that one of the top specialists in PNET cancer was on staff.   Well dang.  I wish we had figured that out before I let the surgeon cut me open.  Especially when during our first visit he said, “I wish you had reached out to me before you had surgery”.  That’s when we knew the enormity of the mistake I had made.  Well, at least it wasn’t the Whipple.
 
