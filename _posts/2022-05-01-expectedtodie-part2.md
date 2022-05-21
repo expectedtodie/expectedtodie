@@ -54,6 +54,8 @@ Yep, I was going to die alright.  The doctor basically just said so.
 
 ## Lessons Learned:
 
+---
+
 1: Focus on finding out what cancer you have before thinking about cutting it out.
 
 2: Do not let them rush you.  Take your time and make good decisions.
@@ -62,6 +64,9 @@ Yep, I was going to die alright.  The doctor basically just said so.
 
 4: Take time to find a specialist, especially if you have a rare condition.
 
-Coming next in the series: “The Specialist”.
+---
+
+
+Check out Part 3 in the series: [The Specialist](https://expectedtodie.com/expectedtodie-part3).
 
 **Disclaimer**: I am not a physician nor any kind of healthcare worker. Nothing I say should be taken as medical advice. I will simply tell my story for my particular situation and hope you will get something out of it.
