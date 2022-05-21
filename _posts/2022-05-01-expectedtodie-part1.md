@@ -68,9 +68,13 @@ If that doesn’t scare you, I don’t know what will.
 
 ## Lessons Learned:
 
+---
+
 1: Focus on finding out what cancer you have before thinking about cutting it out.
 
 2: Do not let them rush you.  Take your time and make good decisions.
+
+---
 
 Check out part 2 in the series: [The news of your demise has been exaggerated](https://expectedtodie.com/expectedtodie-part2).
 
