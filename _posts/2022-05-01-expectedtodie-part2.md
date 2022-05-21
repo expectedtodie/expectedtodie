@@ -52,9 +52,7 @@ I woke up from surgery with a ginormous bandaged incision covering my entire abd
 So, that was it.  I had an incurable cancer that had advanced too far to be cut out.  A few Google searches told me that there were few treatments, and the prognosis was dire.  During my follow-up visit to the surgeon the office administrator, who had taken a liking to me, literally cried in front of me and ran out of the room.  The doctor said she was upset that I could not be helped, and he wondered out loud why such bad things happened to the good guys.  
 Yep, I was going to die alright.  The doctor basically just said so. 
 
-## Part 2 summary:
-
-**Lessons Learned:**
+## Lessons Learned:
 
 1: Focus on finding out what cancer you have before thinking about cutting it out.
 
