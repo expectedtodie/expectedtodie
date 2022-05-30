@@ -96,8 +96,6 @@ With my new knowledge and experience owning my own healthcare, I was feeling mor
 
 But then there was a setback. 
 
-Coming soon.  Dealing with cancer recurrence.
-
 ## Lessons Learned:
 
 ---
