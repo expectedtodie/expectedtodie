@@ -70,7 +70,7 @@ Finding that I had inadvertently improved a serious health concern simply by res
 
 Take a look at my oncologist’s attitude towards my fatty liver.  He knew the cancer wasn’t causing it and so it wasn’t in his wheelhouse.  That’s for some other doctor to worry about.   
 
-And so, the cancer specialists are really just focusing on using the tools at their disposal to impact the cancer.   They aren’t thinking about my quality of life, overall health and impacts their treatments can have on other aspects of your health.   It was up to me to think about these things and make decisions accordingly, such as when I decided not to have the Whipple surgical procedure.
+And so, the cancer specialists are really just focusing on using the tools at their disposal to impact the cancer.   They aren’t thinking about my quality of life, overall health and impacts their treatments can have on other aspects of your health.   And surgeons are only thinking about surgery. They is little discussion or follow-up with your quality of life after surgery. It was up to me to think about these things and make decisions accordingly, such as when I decided not to have the Whipple surgical procedure.
 
 My primary care physician was the closest to having the big picture, but it was still up to me because I only saw him once or twice a year and only for about 15 minutes.  Once I took ownership, my doctors became more like consultants;  experts in a particular area that I can consult about, but all decisions are up to me, based on the big picture.
 
