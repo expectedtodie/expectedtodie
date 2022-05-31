@@ -18,9 +18,9 @@ But as I approached the two-year post-diagnosis mark, my attitude began to chang
 But I also started reading books about cancer, health, spirituality, diet, the body / mind connection, the healthcare system and more.  Topics the old Dave would never have considered.  Here they are organized by category.   I will be mentioning some of these throughout the remaining blogs and how they helped change my thinking and attitude.
 
 #### Cancer and Alternative Medicine ####
-* ## Dying to Be Me: My Journey from Cancer, to Near Death, to True Healing ## by Anita Moorjani
-* ## n of 1: One man’s Harvard documented remission of incurable cancer using only natural methods ## by Glenn Sabin and Dawn Lemanne MD MPH
-* ## ANYWAY YOU CAN: Doctor Bosworth shares her mom's cancer journey. A Beginners Guide to Ketones for Life ## by Annette Bosworth M.D.
+* "Dying to Be Me: My Journey from Cancer, to Near Death, to True Healing" by Anita Moorjani
+* "n of 1: One man’s Harvard documented remission of incurable cancer using only natural methods" by Glenn Sabin and Dawn Lemanne MD MPH
+* "ANYWAY YOU CAN: Doctor Bosworth shares her mom's cancer journey. A Beginners Guide to Ketones for Life" by Annette Bosworth M.D.
 
 #### Body / Mind and Healing Connection ####
 * “Mind over Medicine: Scientific Proof that you Can Heal Yourself” by Lissa Rankin
