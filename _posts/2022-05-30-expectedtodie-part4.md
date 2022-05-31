@@ -80,7 +80,7 @@ And that’s what I did.  On a single day in 2015, I stopped taking both medicat
 
 As it turned out, I didn’t have rosacea anymore and my face did not turn red.  I don’t know why but suspect my diet change helped the situation.
 
-As for the acid refulc, my wife found a solution for the stomach acid that worked pretty well and got me through the transition.   
+As for the acid reflux, my wife found a solution for the stomach acid that worked pretty well and got me through the transition.   
 
 Put 2 tablespoons of apple cider vinegar and ¼ teaspoon of baking soda in a glass.  When the fizzing stops, add some water and drink it all down.  
 
