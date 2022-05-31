@@ -66,7 +66,7 @@ According to Mayo Clinic’s web site, “Experts don't know exactly why some pe
 
 So, I deduced that my the low-sugar diet had cured my fatty liver.  Later, when I became interested in the Keto diet (we will talk about this in a later blog), Dr. Boz confirmed my thinking in “ketoCONTINUUM: Consistently Keto Diet For Life”.
 
-Finding that I had inadvertently improved a serious health concern simply by restricting sugar in my diet, reenforced a lesson I started learning when I began my research and my diet and lifestyle changes: “Do not rely only on doctors.  Take control of your own healthcare.”  This is a theme that was reenforced time and again and I think is the most important part of my journey to life.  
+Finding that I had inadvertently improved a serious health concern simply by restricting sugar in my diet, reenforced a lesson I started learning when I began my research and my diet and lifestyle changes: “Do not rely solely only on doctors.  Take control of your own healthcare.”  This is a theme that was reenforced time and again and I think is the most important part of my journey to life.  
 
 Take a look at my oncologist’s attitude towards my fatty liver.  He knew the cancer wasn’t causing it and so it wasn’t in his wheelhouse.  That’s for some other doctor to worry about.   
 
@@ -114,7 +114,7 @@ But then there was a setback.
 
 7: Doctors are not God.  They do not fully understand how the human body works and often are focused only on their specific area of expertise.
 
-8: Do not rely only on doctors.  Take control of your own healthcare.
+8: Do not rely solely on doctors.  Take control of your own healthcare.
 
 ---
 
