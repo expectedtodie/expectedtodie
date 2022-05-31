@@ -52,7 +52,7 @@ But I also started reading books about cancer, health, spirituality, diet, the b
 * “Ending Medical Reversal: Improving Outcomes, Saving Lives” by Adam Cifu and Vinay Prasad
 * “The Primal Prescription: Surviving the ‘Sick Care’ Sinkhole” by Doug McGuff and Robert P. Murphy
 
-This was a long process that spanned several years and which I learned many new lessons that I will expand on throughout this blog. 
+This was a long process that spanned several years and which I learned many new lessons that I will expand on throughout this blog series. 
 
 Early on I began to look closely at what I was eating and drinking.  The first thing I did was stop my 2-a-day Mountain Dews.  As I read books such as “The Dorito Effect” I started cutting down on processed foods and foods with added sugars.  I began to eat only whole grains instead of white bread, more vegetables, and fruits.   During this time, I found an app called Fooducate which allowed me to scan items at the grocery store and it would provide a rating and an explanation of why this food was good or bad. 
 
