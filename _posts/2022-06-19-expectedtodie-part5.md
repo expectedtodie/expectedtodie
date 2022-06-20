@@ -15,6 +15,8 @@ This was a huge decision.  We gave it a lot of thought and prayers and decided t
 
 Around this time, I asked my wife Michele what we should do when our youngest child, Jackson, graduated from high school in 2019.   She said maybe we should buy an RV and travel the country.  And that’s exactly what I was thinking as well!   So, we decided right there and then that in 2019, we would quit our jobs, sell our house and nearly all of our possessions, buy an RV and travel the country for one year.  Making that decision marked a change in my thinking and the way I looked at life that gave me something incredible to work towards.   A life changing experience.   Despite my growing tumor, pending surgery and an ‘incurable cancer’, I would become a nomad in 2 years!
 
+Lesson Learned: It is important as a cancer patient to have something in the future to work towards, despite the cancer
+
 And then it was time for the surgery.   This one made me very nervous.  Would losing most of my pancreas and all of my spleen affect my quality of life?   There was a definitely possibility of that.  But there was also a potential quality of life benefit.   My cancer surgeon had recommended a plastic surgeon to handle closing me up with a new technique to prevent another hernia.   I had been living with my second softball sized hernia for years now and it really sucked.  The idea of fixing this issue once and for all was very appealing.  So, it was to be two surgeons for the price of, well two, but working together. 
 
 This surgery really knocked me on my back.  I awoke with a tube down my nose which is really uncomfortable.  I had another huge incision from my sternum to my, wait a minute… no belly button anymore! They didn’t mention that would happen.  Now, there would be no way to prove I was human, I guess. 
@@ -24,8 +26,6 @@ The surgeon said that they got the cancer out with “clear margins”, meaning 
 Since this surgery involved removing most of my pancreas, the recovery was much tougher as I could not digest food and could not leave the hospital until everything was working.  But I got up and walking quickly with the help of therapists and serious pain medication.   I was out of work for a month and spent my time recovering. 
 
 Unfortunately, on the very next MRI just 9 months after surgery, a new and faster growing tumor had developed on what remained of my pancreas.  This, of course, was very bad news.  Now, I was regretting the pancreas surgery.  After all, the main purpose was to get rid of the main tumors and stop from growing again.   And it failed spectacularly, leaving me with a faster growing tumor than I had in the first place.
-
-Lesson Learned: No more surgery when I know for sure that it would not help prevent more tumors, no matter what the doctors say. 
 
 At this point, my oncologist recommended proton beam radiation focused on this single tumor.  Lovely.  More treatments.   And so, in the spring of 2018, I met with yet another doctor who would manage my radiation treatments.  The cool thing about the photon beam radiation treatments is that you do not have to be opened up.  The beam will travel right through your skin and focus directly on the tumor.  But it has to be very precise.  What they do is create a mold, which will vary depending on where your tumor is, that will keep you from moving around.   Here is what my mold looked like.
 
@@ -62,7 +62,7 @@ I had more important things to think about, like how we would sell, give away an
 
 8: Do not rely solely on doctors.  Take control of your own healthcare.
 
-9: When you know surgery is not going to help and make your quality of life worse, do not do it, even if the doctor says you should.
+9: It is important as a cancer patient to have something in the future to work towards, despite the cancer
 
 ---
 
