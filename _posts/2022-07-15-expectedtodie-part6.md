@@ -58,6 +58,10 @@ Lesson Learned: “Don’t wait.  Live life to the fullest while you can!”
 Here is a map of our travel since June 2019!
 <img src="/images/blog/nomad-map-to-feb-2023.png" width="600px">
 
+Well, back to the cancer.  I did fly to Tampa in October 2019 for an MRI.  The tumor was still there on the pancreas but there was no change. And that was my last MRI because after that came the pandeamic.  
+
+I mentioned that Michele was administering the last treatment I still received while we were in the RV.  It was a hormone shot given once a month that was supposed to be keeping the cancer stable.  And get this, it cost $27,000 list price a month.  $27,000!  But with insurance discount it was only $18,000.  That is just crazy.  Fortunately, I had insurance and discovered a copay program from the manufacturer that would pay up to $20,000 of my out-of-pocket expenses.  You know the insurance company was making a ridiculous profit when they can afford to do that. But getting this medication became more and more difficult.  By early 2020 there were 4 different parties involved.  The oncologist who prescribed it, the insurance company, the insurance company's specialist pharmacy and the drug company's copay assistance program.  Try as I might, I simply was not able to get these 4 parties to work together to get me the medication! Everyone kept pointing fingers at the others.   I took this as a sign to stop taking this medication.  And that was that.  My last cancer treatment. On to the next National Park in the RV!
+
 If you are interested in what it is like to live a minimalist, nomadic lifestyle check out our book [Working on the Move: A guide for remote workers seeking adventure](https://www.amazon.com/dp/B09MGD3X8F/ref=cm_sw_em_r_mt_dp_TSSVQ5NJMK0QWB1GNCR4)
 
 If you want to see the pictures, feel free to follow us on social media: [Facebook](https://facebook.com/gameofroamers) or [Instagram](https://instagram.com/gameofroamers)
@@ -93,7 +97,7 @@ If you want to see the pictures, feel free to follow us on social media: [Facebo
 
 ---
 
-Coming next in the series: “Living in the Now”.
+Coming next in the series: “Too much sugar.  What about Keto?”.
 
 **Disclaimer**: I am not a physician nor any kind of healthcare worker. Nothing I say should be taken as medical advice. I will simply tell my story for my particular situation and hope you will get something out of it.
 
