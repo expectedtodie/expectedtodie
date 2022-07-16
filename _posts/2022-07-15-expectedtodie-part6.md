@@ -41,7 +41,7 @@ That’s when we finally made the decision of what kind of RV.  Because I had ne
 
 I mentioned I was scared of towing a large fifth-wheel RV, but that’s not to say driving a huge beast like this wasn’t scary.  It was.  A lot.  You don’t have to have any special training or license to drive one and so we jumped in and took off.
 
-<img src="/images/blog/New RV.JPG" width="300px">
+<img src="/images/blog/New RV.JPG" width="600px">
 
 But what about the cancer? What if the cancer grew? What if I needed some treatment of some kind? How can a cancer patient with stage IV cancer, stable or not, be so irresponsible?
 
