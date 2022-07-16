@@ -89,7 +89,7 @@ If you want to see the pictures, feel free to follow us on social media: [Facebo
 
 11: What you eat is important in your healing. Be open to different ways of thinking about what a healthy diet is.
 
-12: Don't wait.  Life life to the fullest while you can!
+12: Don't wait.  Live life to the fullest while you can!
 
 ---
 
