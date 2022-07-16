@@ -27,9 +27,17 @@ So, what is the difference between a vegan and a vegetarian diet?   Eating veget
 
 Lesson Learned: “What you eat is important in your healing. Be open to different ways of thinking about what a healthy diet is”
 
-I will continue to discuss these life changes suggested in “Radical Remission”, but first let’s talk about the biggest life change of all.  
+What about using herbs and supplements? I read about and tried a few. One was dandelion root.  I had someone's story about how they dug up fresh dandelions, dried the root, pounded into powder and mixed it with orange juice to drink.  What the heck, I would try that.  The problem was, we lived in Tampa, Florida.  Did you know that there aren't dandelions in Florida? Up north where I grew up they were everywhere and you spent a lot of time getting rid of them, but in Florida, when I wanted them, they were nowhere to be found!
 
-It was January 2019, and our new life was rapidly approaching. There was much to do. We were working hard to ready the house in Tampa, Florida for sale while urgently ridding ourselves of 30 years of stuff.   We hoped to have the house sold by June and with the proceeds, we planned to buy an RV, though we still weren’t sure what kind.  When we first planned this great adventure of quitting our jobs, selling our house, and embarking on a year-long RV trip across the US, we thought it would just be Michele and I.   Our daughter Taylor had graduated from Grad school and would soon be a licensed Occupational Therapist.  Our oldest son, Zach, would graduate from college in May and our youngest son, Jackson, would begin college at some Florida university.  We would be empty nesters.   
+We went to an organic herbal farmer's market and asked around.  One guy said that about 30 minutes north they had laid down some sod in a park and he had seen dandelions. Ah ha! So we grabbed a trowel and a bag and off we went.  We tried to be stealthy as we dug up the dandelions in the park but we inevitetably left large holes. Then we saw the park rangers coming, apparently because they had heard about someone digging up the sod.  But we managed to escape with our bounty and after a few days of drying, I was eating dandelion root powder.  
+
+Unfortunately, this did not magically cure my cancer, but it was a good story.
+
+I even tried releasing surpressed emotions, but this wasn't for me.  I had a open mind about it, but I just didn't see or feel any changes so I dropped it.
+
+But hey, was there any more radical life change than selling everything you own, quitting your jobs and touring the country in an RV? 
+
+It was January 2019, and our new RV life was rapidly approaching. There was much to do. We were working hard to ready the house in Tampa, Florida for sale while urgently ridding ourselves of 30 years of stuff.   We hoped to have the house sold by June and with the proceeds, we planned to buy an RV, though we still weren’t sure what kind.  When we first planned this great adventure of quitting our jobs, selling our house, and embarking on a year-long RV trip across the US, we thought it would just be Michele and I.   Our daughter Taylor had graduated from Grad school and would soon be a licensed Occupational Therapist.  Our oldest son, Zach, would graduate from college in May and our youngest son, Jackson, would begin college at some Florida university.  We would be empty nesters.   
 
 Or maybe not.
 
