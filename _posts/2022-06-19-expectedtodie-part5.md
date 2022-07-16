@@ -65,7 +65,6 @@ And so, I thought little of cancer and cancer treatments as we made radical chan
 
 ---
 
-
-Coming next in the series: “Radical life changes”.
+Check out Part 6 in the series: [Radical life changes](https://expectedtodie.com/expectedtodie-part6).
 
 **Disclaimer**: I am not a physician nor any kind of healthcare worker. Nothing I say should be taken as medical advice. I will simply tell my story for my particular situation and hope you will get something out of it.
