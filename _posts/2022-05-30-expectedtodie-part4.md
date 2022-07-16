@@ -118,6 +118,6 @@ But then there was a setback.
 
 ---
 
-Check out Part 3 in the series: [Dealing with cancer recurrence](https://expectedtodie.com/expectedtodie-part5).
+Check out Part 5 in the series: [Dealing with cancer recurrence](https://expectedtodie.com/expectedtodie-part5).
 
 **Disclaimer**: I am not a physician nor any kind of healthcare worker. Nothing I say should be taken as medical advice. I will simply tell my story for my particular situation and hope you will get something out of it.
