@@ -55,9 +55,12 @@ Living a minimalist lifestyle, free from stuff, free from the burdens of homeown
 
 Lesson Learned: “Don’t wait.  Live life to the fullest while you can!”
 
-Map
+<img src="/images/blog/map-all-travel.png" width="600px">
+A map of our travel since June 2019!
 
-Working on the move, game of roamers
+If you are interested in what it is like to live a minimalist, nomadic lifestyle check out our book [Working on the Move: A guide for remote workers seeking adventure](https://www.amazon.com/dp/B09MGD3X8F/ref=cm_sw_em_r_mt_dp_TSSVQ5NJMK0QWB1GNCR4)
+
+If you want to see the pictures, feel free to follow us on social media: [Facebook](https://facebook.com/gameofroamers) or [Instagram](https://instagram.com/gameofroamers)
 
 
 ## Lessons Learned:
@@ -88,7 +91,6 @@ Working on the move, game of roamers
 
 12: Don’t wait.  Live life to the fullest while you can!
 ---
-
 
 Coming next in the series: “Living in the Now”.
 
