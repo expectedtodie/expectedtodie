@@ -27,7 +27,7 @@ So, what is the difference between a vegan and a vegetarian diet?   Eating veget
 
 Lesson Learned: “What you eat is important in your healing. Be open to different ways of thinking about what a healthy diet is”
 
-What about using herbs and supplements? I read about and tried a few. One was dandelion root.  I had someone's story about how they dug up fresh dandelions, dried the root, pounded into powder and mixed it with orange juice to drink.  What the heck, I would try that.  The problem was, we lived in Tampa, Florida.  Did you know that there aren't dandelions in Florida? Up north where I grew up they were everywhere and you spent a lot of time getting rid of them, but in Florida, when I wanted them, they were nowhere to be found!
+What about using herbs and supplements? I read about and tried a few. One was dandelion root.  I had read someone's story about how they dug up fresh dandelions, dried the root, pounded into powder and mixed it with orange juice to drink and this cured their cancer.  What the heck, I would try that.  The problem was, we lived in Tampa, Florida.  Did you know that there aren't dandelions in Florida? Up north where I grew up they were everywhere and you spent a lot of time and money getting rid of them, but in Florida, when I wanted them, they were nowhere to be found!
 
 We went to an organic herbal farmer's market and asked around.  One guy said that about 30 minutes north they had laid down some sod in a park and he had seen dandelions. Ah ha! So we grabbed a trowel and a bag and off we went.  We tried to be stealthy as we dug up the dandelions in the park but we inevitetably left large holes. Then we saw the park rangers coming, apparently because they had heard about someone digging up the sod.  But we managed to escape with our bounty and after a few days of drying, I was eating dandelion root powder.  
 
@@ -66,9 +66,13 @@ Lesson Learned: “Don’t wait.  Live life to the fullest while you can!”
 Here is a map of our travel since June 2019!
 <img src="/images/blog/nomad-map-to-feb-2023.png" width="600px">
 
-Well, back to the cancer.  I did fly to Tampa in October 2019 for an MRI.  The tumor was still there on the pancreas but there was no change. And that was my last MRI because after that came the pandeamic.  
+There was something I noticed as we settled into our new lifestyle.  It was much less stressful. I believe stress was a big factor in getting my cancer in the first place. I figure it started getting a foothold back in 2006 when I started a new job. I am in software development and I was to manage a team of 50 people.  The first week, my boss came into my office physically shaking and said "Dave, I don't know how much longer I can take this. Prepare yourself to take on my job too."  Yeah, that job was stressful alright and so was the next one after that.  I just didn't realize what it was doing to my body until I did not have that stress anymore.  
 
-I mentioned that Michele was administering the last treatment I still received while we were in the RV.  It was a hormone shot given once a month that was supposed to be keeping the cancer stable.  And get this, it cost $27,000 list price a month.  $27,000!  But with insurance discount it was only $18,000.  That is just crazy.  Fortunately, I had insurance and discovered a copay program from the manufacturer that would pay up to $20,000 of my out-of-pocket expenses.  You know the insurance company was making a ridiculous profit when they can afford to do that. But getting this medication became more and more difficult.  By early 2020 there were 4 different parties involved.  The oncologist who prescribed it, the insurance company, the insurance company's specialist pharmacy and the drug company's copay assistance program.  Try as I might, I simply was not able to get these 4 parties to work together to get me the medication! Everyone kept pointing fingers at the others.   I took this as a sign to stop taking this medication.  And that was that.  My last cancer treatment. On to the next National Park in the RV!
+Lesson Learned: “Learn to recognize when stress is impacting your body and learn how to de-stress”
+
+Well, back to the cancer.  I flew to Tampa in October 2019 for an MRI.  The tumor was still there on the pancreas but it hadn't grown.   And that was my last MRI because after that came the pandeamic.  
+
+As for treatments, I mentioned that Michele was administering the last treatment I still received while we were in the RV.  It was a hormone shot given once a month that was supposed to be keeping the cancer stable.  And get this, it cost $27,000 list price a month.  $27,000!  But with insurance discount it was only $18,000.  That is just crazy.  Fortunately, I had insurance and discovered a copay program from the manufacturer that would pay up to $20,000 of my out-of-pocket expenses.  You know the insurance company was making a ridiculous profit when they can afford to do that. But getting this medication became more and more difficult.  By early 2020 there were 4 different parties involved.  The oncologist who prescribed it, the insurance company, the insurance company's specialist pharmacy and the drug company's copay assistance program.  Try as I might, I simply was not able to get these 4 parties to work together to get me the medication! Everyone kept pointing fingers at the others.   I took this as a sign to stop taking this medication.  And that was that.  My last cancer treatment. On to the next National Park in the RV!
 
 If you are interested in what it is like to live a minimalist, nomadic lifestyle check out our book [Working on the Move: A guide for remote workers seeking adventure](https://www.amazon.com/dp/B09MGD3X8F/ref=cm_sw_em_r_mt_dp_TSSVQ5NJMK0QWB1GNCR4)
 
@@ -102,6 +106,8 @@ If you want to see the pictures, feel free to follow us on social media: [Facebo
 11: What you eat is important in your healing. Be open to different ways of thinking about what a healthy diet is.
 
 12: Don't wait.  Live life to the fullest while you can!
+
+13: Learn to recognize when stress is impacting your body and learn how to de-stress.
 
 ---
 
