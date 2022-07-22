@@ -3,7 +3,7 @@ layout: post
 title: Expected to Die. One Man’s journey to life from stage IV, incurable cancer
 ---
 
-**Part 4: Get Busy Living or Get Busy Dying** 
+**Part 4: Get busy living or get busy dying** 
 
 This is part 4 of my blog series.  If you haven't read the previous parts in the series, it is best to start with part one, [Daddy's dying](https://expectedtodie.com/expectedtodie-part1).
 
