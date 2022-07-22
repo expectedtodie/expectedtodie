@@ -3,7 +3,7 @@ layout: post
 title: Expected to Die. One Man’s journey to life from stage IV, incurable cancer
 ---
 
-**Part 6: Radical Life Changes** 
+**Part 6: Radical life changes** 
 
 This is part 6 of my blog series.  If you haven't read the previous parts in the series, it is best to start with part one, [Daddy's dying](https://expectedtodie.com/expectedtodie-part1).
 
