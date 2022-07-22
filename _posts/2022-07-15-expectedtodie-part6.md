@@ -111,7 +111,7 @@ If you want to see the pictures, feel free to follow us on social media: [Facebo
 
 ---
 
-Coming next in the series: “All in!”.
+Check out Part 7 in the series: [All in!](https://expectedtodie.com/expectedtodie-part7).
 
 **Disclaimer**: I am not a physician nor any kind of healthcare worker. Nothing I say should be taken as medical advice. I will simply tell my story for my particular situation and hope you will get something out of it.
 
