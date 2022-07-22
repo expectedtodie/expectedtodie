@@ -40,16 +40,17 @@ I have been painted myself into a corner here.  I want to avoid medications to d
 And so, I have been doing research about cholesterol and its role in heart disease.  It turns out, it may not have a role at all.  But you won’t hear that from the pharmaceutical industry and mainstream health system, so that makes me crazy.   And maybe I am.  But I have done enough reading to make the decision to go ALL IN.  I am placing everything on the long odds bet that this high LDL level will not kill me.  My primary care physician will not be happy about this. 
 
 I have realized that nearly every quality-of-life health issue I have had, came from cancer treatments or treatments of issues due to cancer treatments. 
-•	I had a large hernia after my first cancer surgery
-•	I had surgery to repair the hernia and got another hernia
-•	I got a 1” deep abscess in my abdomen from a surgery which took months to heal
-•	I have had high blood glucose levels due to surgery to remove most of my pancreas because of cancer
-•	The high blood glucose levels have caused a cataract in my eye and God knows what else
-•	The muscles in my butt where I received shots every month for years in hopes to slow the cancer, are now unstable
-•	I suffered through a year of on-and-off fatigue due to chemo treatment
-•	And let’s not talk about the effects of beaming radiation into my abdomen on my digestive system
-•	I have to take incredibly expensive enzyme pills with every meal because my pancreas can no longer generate the necessary enzymes
-•	A more aggressive cancer started up right after removing so many body parts to fight the cancer.
+*	I had a large hernia after my first cancer surgery
+*	I had surgery to repair the hernia and got another hernia
+*	I got a 1” deep abscess in my abdomen from a surgery which took months to heal
+*	I have had high blood glucose levels due to surgery to remove most of my pancreas because of cancer
+*	The high blood glucose levels have caused a cataract in my eye and God knows what else
+*	The muscles in my butt where I received shots every month for years in hopes to slow the cancer, are now unstable
+*	I suffered through a year of on-and-off fatigue due to chemo treatment
+*	And let’s not talk about the effects of beaming radiation into my abdomen on my digestive system
+*	I have to take incredibly expensive enzyme pills with every meal because my pancreas can no longer generate the necessary enzymes
+*	A more aggressive cancer started up right after removing so many body parts to fight the cancer.
+
 I am done with cancer treatments, so let us see what the MRI says in December.  I think it will be good news.
 
 My bets are placed.  I am ALL IN.  I am trusting my instincts like never before.  I am owning my healthcare.  I am doing everything I can to help my body heal itself.
@@ -76,7 +77,19 @@ Stay tuned for the final results in December.
 
 Until then, here are some pictures from our adventures
 
-<img src="/images/blog/New RV.JPG" width="600px">
+<img src="/images/blog/family.jpeg" width="600px">
+<img src="/images/blog/sauk.jpeg">
+<img src="/images/blog/Shoshone Falls by Kayak.jpeg">
+<img src="/images/blog/Saguro.JPG">
+<img src="/images/blog/Maine on the water.jpeg">
+<img src="/images/blog/JoshuaTreeNationalPark3.jpeg">
+<img src="/images/blog/Deschutes National Forest.jpeg">
+<img src="/images/blog/Grand Tetons National Park.jpeg">
+<img src="/images/blog/Deschutes National Forest2.jpeg">
+<img src="/images/blog/Grand Tetons National Park2.jpeg">
+<img src="/images/blog/Crater Lake2.jpeg">
+<img src="/images/blog/Antelope Canyon3.jpeg">
+<img src="/images/blog/ZachInRedwoods.JPG">
 
 ## Lessons Learned:
 
