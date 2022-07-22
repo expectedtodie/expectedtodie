@@ -11,7 +11,7 @@ Since the surgery had failed, maybe it was time to find a specialist.  It turns 
 
 This new doctor had relatively good news.  As we knew, this was a slow-growing cancer and, though it could not be cured, it could be treated like a chronic disease.   And there were a few tools in his toolkit for treatment.  The first, was chemo treatment administrated through a combination of different chemo pills.  I would take one Chemo pill twice a day for 14 days.  On the 10th day, I would take the other as well.   They gave me an anti-nausea pill which was critical to take around the clock.  By day 14, I was completely wiped and found it very hard to get through the day.  I was working full-time again and that was a struggle.  The extreme fatigue would last for a week.   Then I had a week off.  And then back to the pills.  This went on for a full year into 2014.
 
-Something the doctors never really make clear before surgery are the complications you may have after surgery.   Mine was a huge, hernia along my abdominal incision that started growing a couple of months after surgery eventually becoming the size of a softball.  It turns out there is a lot of pressure inside your abdomen and stuff wants to push out.  Gross, I know.  Your strong abdomen muscles and facia are able to hold it all in, unless they are cut, then all bets are off. 
+Something the doctors never really make clear before surgery are the complications you may have after surgery.   Mine was a huge hernia along my abdominal incision that started growing a couple of months after surgery eventually becoming the size of a softball.  It turns out there is a lot of pressure inside your abdomen and stuff wants to push out.  Gross, I know.  Your strong abdomen muscles and facia are able to hold it all in, unless they are cut, then all bets are off. 
 
 Now what? 
 
@@ -51,6 +51,6 @@ But progression-free was not to be.
 
 ---
 
-Check out Part r in the series: [Get busy living or get busy dying](https://expectedtodie.com/expectedtodie-part4).
+Check out Part 4 in the series: [Get busy living or get busy dying](https://expectedtodie.com/expectedtodie-part4).
 
 **Disclaimer**: I am not a physician nor any kind of healthcare worker. Nothing I say should be taken as medical advice. I will simply tell my story for my particular situation and hope you will get something out of it.
