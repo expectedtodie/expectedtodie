@@ -9,7 +9,7 @@ This is part 2 of my blog series.  If you haven't read part 1, check out [Daddy'
 
 It wasn’t until January 2013 that we finally were able to get the biopsy done.   This required that I be put under anesthesia while a different doctor put a scope down my throat to inspect and cut out a small part of the lesions from both the pancreas and liver.  We talked with the doctor before the procedure and he explained that I would not feel a thing and, at worst, would have a sore throat for a day.  And he was right, it was no big deal.  
 
-Some days later, our surgeon called and asked us to come to his office.  We were sitting there in his office when he popped in the door and announced, “the news of your demise has been exaggerated!”.  He really said this.  This is when we learned I had a rare type of cancer called Pancreatic Neuroendocrine Tumors (PNET) and not Pancreatic Cancer or Adenocarcinoma .   While the five-year life expectancy for stage IV Adenocarcinoma is less than 1%, the five-year life expectancy for stage IV PNET is 24% because it is a slower growing cancer.  So, good news… sort of.   I was told it had likely been growing for a decade, but I had no symptoms which is typical of this type of cancer.  Who knew? 
+Some days later, our surgeon called and asked us to come to his office.  We were sitting there in his office when he popped in the door and announced, “the news of your demise has been exaggerated!”.  He really said this.  This is when we learned I had a rare type of cancer called Pancreatic Neuroendocrine Tumors (PNET) and not Pancreatic Cancer or Adenocarcinoma .   While the five-year life expectancy for stage IV Adenocarcinoma is less than 1%, the five-year life expectancy for stage IV PNET is 24% because it is a slower growing cancer.  So, good news… sort of.   I was told it had likely been growing for a decade, but I had no symptoms, which is typical of this type of cancer.  Who knew? 
 
 Even though we had switched cancer diagnosis, the surgeon still wanted to do the “Whipple” procedure and the oncologist concurred.    And so, we planned to move ahead with the surgery.
 
@@ -50,6 +50,7 @@ Back to 2013
 I woke up from surgery with a ginormous bandaged incision covering my entire abdomen.   That is when Michele told me that it was really bad.  The surgeon saw no way to strategically cut out the cancer and only removed my gall bladder, which he said was very diseased.  
 
 So, that was it.  I had an incurable cancer that had advanced too far to be cut out.  A few Google searches told me that there were few treatments, and the prognosis was dire.  During my follow-up visit to the surgeon the office administrator, who had taken a liking to me, literally cried in front of me and ran out of the room.  The doctor said she was upset that I could not be helped, and he wondered out loud why such bad things happened to the good guys.  
+
 Yep, I was going to die alright.  The doctor basically just said so. 
 
 ## Lessons Learned:
