@@ -61,6 +61,12 @@ I have caught up with my story now and you may feel gipped because you read all 
 
 But no matter what happens, I have won.
 
+I was expected to die within 5 years but now, here I am 10 years later feeling great and climbing mountains every weekend!
+
+Michele and I will celebrate our 31st anniversary next month.  The most amazing woman I have every known decided to stick with me all these years.  What a great adventure!
+
+I have gotten to see all my children grow up.  Jackson is 21 and is a junior doing online college while he travels with us.  Zach is 25 continues to follow his travel passions and is currently in eastern Europe for a couple of months. At 25 he has already visited 40 countries.  Taylor is 28 and is doing great in her career as an Occupational Therapist and has also met someone that just might be the one.  Maybe I will get to go to a wedding too!
+
 I have spent the last 3+ years living life in a way one would not expect to ever be able to do as a cancer patient.  I no longer have possessions to worry about, nor a house.  We live free, moving from place to place, covering nearly all of this amazing country we live in.   
 
 We have lived on both oceans, on lakes, in the forest, by rivers, in the mountains, near small cities and in very rural country.   
@@ -73,7 +79,7 @@ We got to visit friends and family across the country who we may never have seen
 
 We have seen the giant redwoods, jaw-dropping mountain-top views, alpine lakes, moose and bears, bison and wild horses, the red mountains of Utah, the ocean cliffs of Maine, the snow-capped mountains of Colorado, the beautiful beaches of Florida, the stunning pacific ocean views of Washington, Oregon and California, massive sand dunes as far as the eye can see, stars as can only be seen in the darkness of the desert and so much more.  
 
-I win no matter what!  
+See, I even if I died tomorrow, I have won!  
 
 Stay tuned for the final results in December.
 
