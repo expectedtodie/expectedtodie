@@ -74,6 +74,9 @@ I win no matter what!
 
 Stay tuned for the final results in December.
 
+Until then, here are some pictures from our adventures
+
+<img src="/images/blog/New RV.JPG" width="600px">
 
 ## Lessons Learned:
 
