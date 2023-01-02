@@ -23,7 +23,9 @@ This went on for 10 days.  As I measure all treatment effects on quality of life
 
 But there was little time to think of such things with my daughter in town for the holidays.  On Christmas even we moved locations to Jacksonville where my mother-in-law lives and spent Christmas and New Years with family. And we planned our move to the mountains of western North Carolina where we would be putting down roots in mid-January. 
 
-....more to come
+So, what to do next?  I am now exploring Autophagy which cleans out old cell matter and can be enhanced through fasting and Ketosis.   It seems there is consensus that improved autophagy can help prevent cancer and can work with to improve chemo treatment, but there is less knowledge about whether it can help stop or reverse tumor growth and it may even help tumor growth.   Still, I may try this.
+
+So, no new lessons learned at this time.  As I mentioned in the last post, no matter what happens, I've already won.  I am 10 years out with a cancer that should have killed me by now.  I feel great and have a terrific quality of life.   
 
 
 ## Lessons Learned:
