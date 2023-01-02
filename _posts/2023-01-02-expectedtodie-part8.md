@@ -7,15 +7,21 @@ title: Expected to Die. One Man’s journey to life from stage IV, incurable can
 
 This is part 8 of my blog series.  If you haven't read the previous parts in the series, it is best to start with part one, [Daddy's dying](https://expectedtodie.com/expectedtodie-part1).
 
-While I was in Tampa, FL in December I went ahead and got an MRI scan at Moffitt Cancer Center.  Unfortunately, the results were not as I hoped.  There were still tumors on my pancreas and liver and they had grown a bit.  I also had another full-body PET scan, but this time it was able to detect my specific cancer anywhere in the body.  Fortunately, there was no additional cancer.
+While I was in Tampa, FL in December it was time for my MRI.  We were staying at a place right on the beach about 40 minutes from Moffitt Cancer Center, and so, with some trepedation, I returned to the same campus I had spent so much time at years before.  Funny story, I left the AirBnB at 6:00am and sat down outside Moffitt waiting for their doors to open.   I crossed my legs and realized I still had my slippers on.  I work full-time remotely and always wear my slippers and managed to walk out of the house and drive for 40 minutes and never realized I forgot to put on shoes!  Well, at least I had pants on.  
+
+I went throught the same routine of gowning up, laying down and sitting through 40 minutes of MRI procedure.  Then I went upstairs to hear the results from my Oncologist. This is the part I hate.  Sitting and waiting for results, but I hoped and expected the cancer to be gone.  I really wanted to see the expression on my Oncologist's face seeing those kind of results without treatment.  
+
+But, unfortuntely, it was not to be.  The cancer was still there and had grown a bit.  Not all that much for 3 years of no treatment, but some growth.  But a new kind of PET scan that can detect my specific cancer type anywhere in the body revealed no new cancer locations.  That was good.  
 
 The Oncologist offered me two treatment options:
-* Go back on Lanreotide, the shot I had stopped taking nearly 3 years ago
+* Go back on Lanreotide, the shot I had stopped taking nearly 3 years ago, in hopes that it may supress tumor growth
 * Radical surgery
 
-I did not even ask what the radical surgery was and told him surgery was out of the question as was any further radiation.   But I said I would try the Lanreotide shot again so I got one while I was there.  The side effects were much worse than I remembered.   I was basically unable to digest my food well and the diarrea was very bad for 10 days.  I could not sleep well and my brain wasn't functioning well.  I was tired a lot.  
+I did not even ask what the radical surgery was and told him surgery was out of the question as was any further radiation.   But I said I would try the Lanreotide shot again so I got one while I was there.  The side effects were much worse than I remembered.   I was basically unable to digest my food well and the diarrea was very bad.  I could not sleep well and my brain wasn't functioning at the high levels it had been.  I was tired a lot.  
 
-As I measure all treatment effects on quality of life, I do not think I will be taking this shot again.
+This went on for 10 days.  As I measure all treatment effects on quality of life, I do not think I want to spend 1/3rd of my life this way.  
+
+But there was little time to think of such things with my daughter in town for the holidays.  On Christmas even we moved locations to Jacksonville where my mother-in-law lives and spent Christmas and New Years with family. And we planned our move to the mountains of western North Carolina where we would be putting down roots in mid-January. 
 
 ....more to come
 
