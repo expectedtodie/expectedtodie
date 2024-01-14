@@ -66,7 +66,7 @@ So, no new lessons learned at this time.  As I mentioned in the last post, no ma
 
 ---
 
-Coming next in the series: TBD
+Coming next in the series: [Still kicking](https://expectedtodie.com/expectedtodie-part9)
 
 **Disclaimer**: I am not a physician nor any kind of healthcare worker. Nothing I say should be taken as medical advice. I will simply tell my story for my particular situation and hope you will get something out of it.
 
