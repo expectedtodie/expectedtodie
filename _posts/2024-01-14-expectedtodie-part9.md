@@ -7,13 +7,13 @@ title: Expected to Die. One Man’s journey to life from stage IV, incurable can
 
 This is part 9 of my blog series.  If you haven't read the previous parts in the series, it is best to start with part one, [Daddy's dying](https://expectedtodie.com/expectedtodie-part1).
 
-Looks like it has been over a year since I checked in here.   It is now January 2024.  Not only am I still kicking 11 years post diagnosis of Stage IV Pancreatic Neuroendocrine Tumors, I am sill thriving!
+Looks like it has been over a year since I checked in here.   It is now January 2024.  Not only am I still kicking 11 years post diagnosis of Stage IV Pancreatic Neuroendocrine Tumors, I am still thriving!
 
-One year ago we moved into a cute little rental house in a cute small town called Brevard, NC.  We literally live on main street in a hundred year old home with a white picket fence.  We walk into town.  I've never lived in a a place where I can walk into town.  I get my hair cut by a barber on main street with one of those rotating stripped poles outside.  We go to the movies in a theater that only shows one movie at a time.  We have really enjoyed small-town life this past year.  But what we love most about this area is we live in the mountains.  Within 20 minutes we can be driving up a mountain.  My son and I hike twice a week either enjoying beautiful Blue Ridge Mountain views or one of the 250 nearby waterfalls. 
+One year ago we moved into a cute little rental house in a cute small mountain town called Brevard, NC.  We literally live on Main Street in a hundred-year-old home with a white picket fence.  We often walk into town, two blocks away.  I've never lived in a place where I can walk into town.  I get my hair cut by a barber on main street with one of those rotating stripped poles outside.  We go to the movies in a theater that only shows one movie at a time.  We have really enjoyed small-town life this past year.  But what we love most about this area is we live in the mountains.  Within 20 minutes we can be driving up a mountain.  My son and I hike twice a week either enjoying beautiful Blue Ridge Mountain views or one of the 250 nearby waterfalls. 
 
 <img src="/images/blog/Waterfall.jpeg" width="300px">
 
-Also, my daughter Taylor did end up getting married in 2023 in Idaho!  There was a time, given this cancer, when I assumed I could never live to walk my daughter down the asile on her wedding day.
+Also, my daughter Taylor did end up getting married in 2023 in Idaho!  There was a time, given this cancer, when I assumed I could never live to walk my daughter down the aisle on her wedding day. How fortunate I am!
 
 <img src="/images/blog/TaylorWedding.jpeg" width="300px">
 
