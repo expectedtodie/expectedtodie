@@ -17,6 +17,7 @@ Also, my daughter Taylor did end up getting married in 2023 in Idaho!  There was
 
 <img src="/images/blog/TaylorWedding.jpeg" width="300px">
 
+My focus has been more along the spiritual line, exploring with an open mind everything from presence to the "law of attraction", manifestation, meditation, soul contracts, previous lives, multi-verse, etc.  This really has nothing to do with the cancer, which I give little thought to, if it is indeed still there.  It is about life, why we are here and where we are going and how I am meant to live.
 
 While I was in Tampa, FL in December it was time for my MRI.  We were staying at a place right on the beach about 40 minutes from Moffitt Cancer Center, and so, with some trepedation, I returned to the same campus I had spent so much time at years before.  Funny story, I left the AirBnB at 6:00am and sat down outside Moffitt waiting for their doors to open.   I crossed my legs and realized I still had my slippers on.  I work full-time remotely and always wear my slippers and managed to walk out of the house and drive for 40 minutes and never realized I forgot to put on shoes!  Well, at least I had pants on.  
 
