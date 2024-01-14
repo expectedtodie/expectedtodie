@@ -3,9 +3,16 @@ layout: post
 title: Expected to Die. One Man’s journey to life from stage IV, incurable cancer
 ---
 
-**Part 8: The results** 
+**Part 9: Still Kicking** 
 
-This is part 8 of my blog series.  If you haven't read the previous parts in the series, it is best to start with part one, [Daddy's dying](https://expectedtodie.com/expectedtodie-part1).
+This is part 9 of my blog series.  If you haven't read the previous parts in the series, it is best to start with part one, [Daddy's dying](https://expectedtodie.com/expectedtodie-part1).
+
+Looks like it has been over a year since I checked in here.   It is now January 2014.  Not only am I still kicking 11 years post diagnosis of Stage IV Pancreatic Neuroendocrine Tumors, I am sill thriving!
+
+One year ago we moved into a cute little rental house in a cute small town called Brevard, NC.  We literally live on main street in a hundred year old home with a white picket fence.  We walk into town.  I've never lived in a a place where I can walk into town.  I get my hair cut by a barber on main street with one of those rotating stripped poles outside.  We go to the movies in a theater that only shows one movie at a time.  We have really enjoyed small-town life this past year.  But what we love most about this area is we live in the mountains.  Within 20 minutes we can be driving up a mountain.  My son and I hike twice a week either enjoying beautiful Blue Ridge Mountain views or one of the 250 nearby waterfalls. 
+
+Also, my daughter Taylor did end up getting married in 2023 in Idaho.
+
 
 While I was in Tampa, FL in December it was time for my MRI.  We were staying at a place right on the beach about 40 minutes from Moffitt Cancer Center, and so, with some trepedation, I returned to the same campus I had spent so much time at years before.  Funny story, I left the AirBnB at 6:00am and sat down outside Moffitt waiting for their doors to open.   I crossed my legs and realized I still had my slippers on.  I work full-time remotely and always wear my slippers and managed to walk out of the house and drive for 40 minutes and never realized I forgot to put on shoes!  Well, at least I had pants on.  
 
