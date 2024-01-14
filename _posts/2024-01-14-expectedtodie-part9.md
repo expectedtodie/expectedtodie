@@ -17,9 +17,11 @@ Also, my daughter Taylor did end up getting married in 2023 in Idaho!  There was
 
 <img src="/images/blog/TaylorWedding.jpeg" width="300px">
 
-My focus has been more along the spiritual line, exploring with an open mind everything from presence to the "law of attraction", manifestation, meditation, soul contracts, previous lives, multi-verse, etc.  This really has nothing to do with the cancer, which I give little thought to, if it is indeed still there.  It is about life, why we are here and where we are going and how I am meant to live.
+My focus has been more along the spiritual line, exploring with an open mind everything from presence to the "law of attraction", manifestation, meditation, soul contracts, previous lives, multi-verse, etc.  This really has nothing to do with the cancer, which I give little thought to, if it is indeed still there.  It is about life, why we are here and where we are going and how I am meant to live.  One thing I keep in mind, at least for me, is this lesson I've learned: love is greater than any doctrine, religious or political.
 
-The lesson worth mentioning this time that is important spiritually and medically and for pretty much every part of life is to have an open mind.  I think it's hard to go wrong with an open-minded attitude and you never know what you will find.
+Another lesson worth mentioning this time that is important spiritually and medically and for pretty much every part of life is to have an open mind.  I think it's hard to go wrong with an open-minded attitude and you never know what you will find.
+
+Onward to 2024. Life awaits!
 
 ## Lessons Learned:
 
@@ -51,7 +53,9 @@ The lesson worth mentioning this time that is important spiritually and medicall
 
 13: Learn to recognize when stress is impacting your body and learn how to de-stress.
 
-14: Keep an open mind, about everything!
+14: Love is greater than any doctrine, religious or political.
+
+15: Keep an open mind, about everything!
 
 ---
 
