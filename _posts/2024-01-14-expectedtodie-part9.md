@@ -19,10 +19,7 @@ Also, my daughter Taylor did end up getting married in 2023 in Idaho!  There was
 
 My focus has been more along the spiritual line, exploring with an open mind everything from presence to the "law of attraction", manifestation, meditation, soul contracts, previous lives, multi-verse, etc.  This really has nothing to do with the cancer, which I give little thought to, if it is indeed still there.  It is about life, why we are here and where we are going and how I am meant to live.
 
-
-
-So, no new lessons learned at this time.  As I mentioned in the last post, no matter what happens, I've already won.  I am 10 years out with a cancer that should have killed me by now.  I feel great and have a terrific quality of life.   
-
+The lesson worth mentioning this time that is important spiritually and medically and for pretty much every part of life is to have an open mind.  I think it's hard to go wrong with an open-minded attitude and you never know what you will find.
 
 ## Lessons Learned:
 
@@ -53,6 +50,8 @@ So, no new lessons learned at this time.  As I mentioned in the last post, no ma
 12: Don't wait.  Live life to the fullest while you can!
 
 13: Learn to recognize when stress is impacting your body and learn how to de-stress.
+
+14: Keep an open mind, about everything!
 
 ---
 
