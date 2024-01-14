@@ -13,7 +13,7 @@ One year ago we moved into a cute little rental house in a cute small mountain t
 
 <img src="/images/blog/Waterfall.jpeg" width="300px">
 
-Also, my daughter Taylor did end up getting married in 2023 in Idaho!  There was a time, given this cancer, when I assumed I could never live to walk my daughter down the aisle on her wedding day. How fortunate I am!
+Also, my daughter Taylor did end up getting married in 2023 in Idaho!  There was a time, given this cancer, when I assumed I could never live to walk my daughter down the aisle on her wedding day. Certainly the doctors didn't see me living 11 years, let alone be thriving.  How fortunate I am!
 
 <img src="/images/blog/TaylorWedding.jpeg" width="300px">
 
