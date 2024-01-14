@@ -13,7 +13,9 @@ One year ago we moved into a cute little rental house in a cute small town calle
 
 <img src="/images/blog/Waterfall.jpeg" width="300px">
 
-Also, my daughter Taylor did end up getting married in 2023 in Idaho.
+Also, my daughter Taylor did end up getting married in 2023 in Idaho!  There was a time, given this cancer, when I assumed I could never live to walk my daughter down the asile on her wedding day.
+
+<img src="/images/blog/TaylorWedding.jpeg" width="300px">
 
 
 While I was in Tampa, FL in December it was time for my MRI.  We were staying at a place right on the beach about 40 minutes from Moffitt Cancer Center, and so, with some trepedation, I returned to the same campus I had spent so much time at years before.  Funny story, I left the AirBnB at 6:00am and sat down outside Moffitt waiting for their doors to open.   I crossed my legs and realized I still had my slippers on.  I work full-time remotely and always wear my slippers and managed to walk out of the house and drive for 40 minutes and never realized I forgot to put on shoes!  Well, at least I had pants on.  
